@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate with **the other developers.**
 
-- 💬 Ask me about **any question related my work.**
+- 💬 Ask me about **any question related to my work.**
 
 - 📫 You can reach me at **nasrinjahan178@gmail.com**
 
